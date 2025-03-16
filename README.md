@@ -44,11 +44,17 @@ Para mejorar mi confianza en mí mismo, seguiré perfeccionando mis habilidades 
 ---
 
 ## IV. Inteligencia Emocional - Reconociendo y manejando mis emociones
-Normalmente me siento motivado porque disfruto aprender y desarrollar soluciones innovadoras. Cuando estoy estresado, me tomo un momento para organizar mis ideas y priorizar mis tareas. Si algo me hace enojar, trato de analizar la situación con calma y enfocarme en la solución en lugar del problema.
+Describe en este espacio:  
+**¿Cómo sueles comunicar tus necesidades a los demás?**  
+**¿Cómo puedes mejorar tu escucha activa?**  
+
+Suelo comunicar mis necesidades hablando claramente lo que quiero que las demás personas sepan que necesito.  
+
+Mejoro mi escucha activa poniendo en práctica la empatía, ya que se necesita para saber escuchar y dar una orientación en el momento correcto.
 
 ---
 
-## V. Comunicación Efectiva - ¿Cómo expreso mis necesidades y escucho a los demás?
+## V. Comunicación Efectiva - ¿Cómo expresar tus necesidades y escuchar a los demás?
 Me comunico de manera clara y directa para que los demás entiendan mis ideas. Sin embargo, sé que siempre hay espacio para mejorar mi escucha activa, por lo que procuro practicar la empatía y entender diferentes perspectivas antes de responder.
 
 ---
